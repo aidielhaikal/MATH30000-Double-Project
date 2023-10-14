@@ -28,4 +28,4 @@ Contributions or collaborations related to this project are welcome. If you have
 
 ## Contact Information
 
-If you have any questions or would like to discuss this project further, you can contact me at [your_email@example.com].
+If you have any questions or would like to discuss this project further, you can contact me at aidiel.haikal0708@gmail.com.
